@@ -1,1 +1,0 @@
-This is about a robot growing and expanding the gitcoin and ethereum blockchain network while having a fun time at the beach.![21](https://user-images.githubusercontent.com/86200112/143428830-adbf7ac9-3be7-40ed-a2ce-f6489dfbfd14.png)
